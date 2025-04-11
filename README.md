@@ -1,7 +1,9 @@
 # THE SCHTICK: NICK TYPE SHIT
 alright i have no idea how these fucks do this shit but whatever 
 
-im nick but you can call me keithian (that is my stage name, i make music - ask me about it and ill send you links) or methric or whatever the fuck really just as long as it isnt fucking stupid and i can actually tell youre talking to me
+im nick but you can call me keithian (that is my stage name, i make music - ask me about it and ill send you links) 
+
+or paul or methric or whatever the fuck really just as long as it isnt fucking stupid and i can actually tell youre talking to me
 
 i apologize if this shit is awful im bad at talking about myself (wait... i dont apologize... GO FUCK YOURSELF!)
 
