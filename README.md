@@ -11,6 +11,7 @@ my main interests are mostly doing your mom, music production, music in general,
 
 my favorite music artists are eminem, d12, monoxide, jamie madrox, twiztid, shaggy 2 dope, violent j and insane clown posse (theres maybe also dr dre and a few others fuck it really just depends)
 
+# DO NOT INTERACT / BEFORE YOU INTERACT SHIT
 i dont have a do not interact list but if youve got a fucking brain then ill be happy to have you around
 
 i block freely but i also just dont give a fuck half the time
@@ -19,9 +20,14 @@ if you got a problem with me then say it to my fuckin face
 
 im really unpredictable sometimes so sorry if im cool and nonchalant one day and then fucking batshit the next thats just how it goes
 
+i say swear words a lot so if you dont like that then you could probably just like FUCK OFF!
+
+# LOVEMAIL I GUESS
 uhhh i already did my lovemail on my faggot ass strawpage but ill do it again here
 
-shoutouts to the strider bros dirk and dave yall are dope as fuck (id also like to take this second to mention my full name is nick strider but im not that weird ass in the homestuck community its just unfortunate)
+shoutouts to the strider bros dirk and dave yall are dope as fuck 
+
+(id also like to take this second to mention my full name is nick strider but im not that weird ass in the homestuck community its just unfortunate)
 
 tord needs to get hit by a fucking car
 
