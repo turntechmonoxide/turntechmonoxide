@@ -27,7 +27,7 @@ i say swear words a lot so if you dont like that then you could probably just li
 ## LOVEMAIL I GUESS
 uhhh i already did my lovemail on my faggot ass strawpage but ill do it again here
 
-shoutouts to the strider bros dirk and dave yall are dope as fuck 
+shoutouts to the strider bros dirk (centifiend) and dave (turntechMethhead) yall are dope as fuck 
 
 (id also like to take this second to mention my full name is nick strider but im not that weird ass in the homestuck community its just unfortunate)
 
