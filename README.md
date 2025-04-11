@@ -1,4 +1,4 @@
-## THE SCHTICK: NICK TYPE SHIT
+# THE SCHTICK: NICK TYPE SHIT
 alright i have no idea how these fucks do this shit but whatever 
 
 im nick but you can call me keithian (that is my stage name, i make music - ask me about it and ill send you links) or methric or whatever the fuck really just as long as it isnt fucking stupid and i can actually tell youre talking to me
@@ -11,7 +11,7 @@ my main interests are mostly doing your mom, music production, music in general,
 
 my favorite music artists are eminem, d12, monoxide, jamie madrox, twiztid, shaggy 2 dope, violent j and insane clown posse (theres maybe also dr dre and a few others fuck it really just depends)
 
-# DO NOT INTERACT / BEFORE YOU INTERACT SHIT
+## DO NOT INTERACT / BEFORE YOU INTERACT SHIT
 i dont have a do not interact list but if youve got a fucking brain then ill be happy to have you around
 
 i block freely but i also just dont give a fuck half the time
@@ -22,7 +22,7 @@ im really unpredictable sometimes so sorry if im cool and nonchalant one day and
 
 i say swear words a lot so if you dont like that then you could probably just like FUCK OFF!
 
-# LOVEMAIL I GUESS
+## LOVEMAIL I GUESS
 uhhh i already did my lovemail on my faggot ass strawpage but ill do it again here
 
 shoutouts to the strider bros dirk and dave yall are dope as fuck 
