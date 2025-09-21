@@ -7,11 +7,9 @@ or paul or methric or whatever the fuck really just as long as it isnt fucking s
 
 i apologize if this shit is awful im bad at talking about myself (wait... i dont apologize... GO FUCK YOURSELF!)
 
-im 16, male, cis, he/him and shit like that
-
 my main interests are mostly doing your mom, music production, music in general, playing games i guess and some other shit i cant be fucked to remember
 
-my favorite music artists are eminem, d12, monoxide, jamie madrox, twiztid, shaggy 2 dope, violent j and insane clown posse (theres maybe also dr dre and a few others fuck it really just depends)
+my favorite music artists are eminem, d12, monoxide, jamie madrox, twiztid, shaggy 2 dope, violent j and insane clown posse (theres maybe also dr dre and a few others fuck it really just depends), BORDERLINE DISASTER
 
 ## DO NOT INTERACT / BEFORE YOU INTERACT SHIT
 i dont have a do not interact list but if youve got a fucking brain then ill be happy to have you around
